@@ -14,3 +14,5 @@ I am an Electronics and Communication Engineering student passionate about embed
 
 ## 🌐 Connect With Me
 - 📢 Check out my main project here: [TRP Electronics](https://trpelectronicspvt.github.io/TRP-Electronics/)
+- 📢 Follow Now on: [Instagram](https://www.instagram.com/trp_electronics_yt/)
+- 📢 Subscribe Now on: [Youtube](https://youtube.com/@trp_electronics?si=8evpAV1y0Xyddppf)
